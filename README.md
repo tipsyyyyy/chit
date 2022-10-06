@@ -1,7 +1,7 @@
-# 4kauto
-## 👉 [สมัคร 4kauto สล็อตpg](https://bit.ly/3SjoJOT) 👈🏻
-## 👉 [ทางเข้า 4kauto สล็อตpg](https://bit.ly/3SjoJOT) 👈🏻
-## 👉 [4kauto  เครดิตฟรี](https://bit.ly/3SjoJOT) 👈🏻
+# texas69th
+## 👉 [สมัคร texas69th สล็อตpg](https://bit.ly/3SjoJOT) 👈🏻
+## 👉 [ทางเข้า texas69th สล็อตpg](https://bit.ly/3SjoJOT) 👈🏻
+## 👉 [texas69th  เครดิตฟรี](https://bit.ly/3SjoJOT) 👈🏻
 ## 👉 [ติดต่อพนักงาน](https://bit.ly/3BIgaGa) 👈🏻
 
 
